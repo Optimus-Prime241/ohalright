@@ -1,1 +1,1 @@
-cod031905 doesn't authorizes
+cod031905 authorizes
